@@ -1,4 +1,4 @@
 # Hi, I'm Gilang Atila Ilham 👋
 ## 💫About Me :
 Saya Sekarang berkuliah di Program Studi Informatika, Universitas Bengkulu.
-Punya Ketertarikan di bidang IT
+Saya sedang belajar di bidang IT Universitas Bengkulu
